@@ -7,3 +7,4 @@ in order to download the game you need to
 4)whether to make a shortcut or not is up to you.
 5)Launch the game and enjoy
 here is the link to the installation video
+https://youtu.be/0NuH4yrr_gM
